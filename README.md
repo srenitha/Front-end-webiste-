@@ -1,2 +1,2 @@
 # Get started building your website
-It Tells Real Stories From Real India in Nine Indian Languages. Events in 30+ Cities 100000+ Attendees &amp; 600+ Talks With 500 Years Watchtime.
+Comprehensive Career Resources in Indian Languages. सरल भाषा में समझें करियर बनाने के सक्सेस मंत्र. MS Excel In Hindi. Career Banaye. सरकारी नौकरी पाएं. Interview Tayyari. Sarkari Naukri Payein. करियर बनाएं. MS एक्सेल सीखें हिंदी में.
